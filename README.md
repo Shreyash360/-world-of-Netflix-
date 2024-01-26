@@ -10,5 +10,7 @@ Excited to share the journey of turning data into actionable insights in the ent
 
 
 
-🚀 Let's connect and chat about the fascinating world of data analytics and streaming trends! 🤝🔍 #PowerBI #DataAnalytics #Netflix #DataVisualization #AnalyticsInAction
+🚀 Let's connect and chat about the fascinating world of data analytics and streaming trends! 🤝🔍
+
+#PowerBI #DataAnalytics #Netflix #DataVisualization #AnalyticsInAction
 Netflix #netflixandchill 
